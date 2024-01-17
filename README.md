@@ -1,2 +1,2 @@
 # Components
-[link](https://alon5564.itch.io/components)
+[itch.io](https://alon5564.itch.io/components)
